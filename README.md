@@ -19,3 +19,5 @@ Afilta 20 mg genellikle iyi tolere edilir. Ancak bazı durumlarda şu yan etkile
 ❌ **Böbrek veya karaciğer hastalığı olanlar** doktor kontrolünde kullanmalıdır.  
 
 Afilta 20 mg, **uzun etkili bir sertleşme tedavisi sunarken, doktor önerisiyle kullanılmalıdır**. Yan etkileri ve kullanım talimatları dikkatle takip edilmelidir.
+
+Daha fazla bilgi için: [Afilta 20 mg Resmi Web Sitesi](https://www.afilta20mg.com/)
